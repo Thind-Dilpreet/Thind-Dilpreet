@@ -1,3 +1,4 @@
+![25EDB760-2411-4604-840D-ED16B7638F3F](https://user-images.githubusercontent.com/114584070/192779680-8ba4d9b1-2e0c-458a-8a46-86a4b47da3ba.jpg)
 - 👋 Hi, I’m @Thind-Dilpreet
 - 👀 I’m interested in ...gaming and 3d-modeling
 - 🌱 I’m currently learning ...3dx.max
